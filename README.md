@@ -4,7 +4,7 @@ The `bridge.net` domain name is for sale.
 
 ## USD$28,500
 
-If interested, please contact hello@object.net.
+If interested, please email hello@object.net.
 
 Payment handled using [escrow.com](https://www.escrow.com/).
 
